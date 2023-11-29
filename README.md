@@ -1,0 +1,4 @@
+-  Hi, I’m @JakeAnd91 (Jacob E. Anderson)
+- I am currently pursuing my Batchelors in CS
+- I am interested in AI, Software Development, and Cyber Security
+- Feel free to reach out to me anytime jake.anderson0291@gmail.com or (209) 453 - 4077
